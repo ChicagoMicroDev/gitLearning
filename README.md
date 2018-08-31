@@ -6,6 +6,16 @@ Learning how to Git better
 This is so cool cbo
 
 
+
 jfhnsaoufbwiu
 jfhoauhfiuha
 jknflsagoigi
+
+Sounds good
+
+line 1
+line 2
+line 3
+line 4
+
+
